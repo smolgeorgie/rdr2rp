@@ -76,7 +76,7 @@ Little Creek Ranch is not a one-person job. I plan to employ 5 people who are al
 
 ## **Budget & Investment Plan**
 
-To start the ranch properly, with livestock, tools, seeds, and basic housing, I will take out a **loan of $20,000**. I understand the responsibility this carries, and I’m committed to **paying it off quickly through consistent hard work, trade, and service.**
+To start the ranch properly, with livestock, tools, seeds, and basic housing, I will have to take out a loan. I understand the responsibility this carries, and I’m committed to **paying it off quickly through consistent hard work, trade, and service.**
 
 **Estimated Expenses:**
 - Land lease or ownership  
