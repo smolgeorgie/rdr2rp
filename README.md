@@ -89,11 +89,10 @@ To start the ranch properly, with livestock, tools, seeds, and basic housing, I 
 
 ## **Closing Words**
 
-Little Creek Ranch isn’t just a business, it’s a fresh start. A place built from hardship, shaped by experience, and meant to serve. I’m not here to get rich quick. I’m here to build something that lasts, to work hard, help others, and make this place a part of the community.
+Little Creek Ranch isn’t just a business, it’s a fresh start. I’m here to build something that lasts, to work hard, help others, and make this place a part of the community.
 
 Thank you for taking the time to read this. I’m ready to get to work.
-
-—  
+  
 **Sincerely,**  
 **Isabella McGraw**  
 
