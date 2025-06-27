@@ -70,7 +70,7 @@ For this, I have created a poster that will demonstrate an example of what it ca
 
 ## **Staff & Work Culture**
 
-Little Creek Ranch is not a one-person job. I plan to employ 5 people who are already eager to start, and another 5 open spots to be filled, who each have their own role, from livestock care and crop tending, to courier work and product crafting. I believe in teamwork with freedom. Ranch hands are trusted to manage their own tasks and are **free to roam and take on other work**, as long as they communicate it with me. That way, everyone grows, the ranch and the people in it.
+Little Creek Ranch is not a one-person job. I plan to employ 5 people who are already eager to start, and more spots to be filled, who each have their own role, from livestock care and crop tending, to courier work and product crafting. I believe in teamwork with freedom. Ranch hands are trusted to manage their own tasks and are **free to roam and take on other work**, as long as they communicate it with me. That way, everyone grows, the ranch and the people in it.
 
 ---
 
