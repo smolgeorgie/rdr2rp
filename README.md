@@ -62,7 +62,7 @@ I want to provide help with farm works, where-ever is needed. This service is me
 #### **Lodging**
 Simple lodging available for travelers, traders, and those looking to rest by the river.
 
-For this, I have created a poster that will demonstrate what it will look like on the pinboard. It got a map on the left that will tell the location, logo on the right and our products on the bottom. 
+For this, I have created a poster that will demonstrate an example of what it can look like on the pinboard. It got a map on the left that will tell the location, logo on the right and our products on the bottom. 
 
 ![Gallows_Creek_Proto_2 1](https://github.com/user-attachments/assets/f7f7df3b-85ce-4fe6-9de0-e680b0b8ba1c)
 
